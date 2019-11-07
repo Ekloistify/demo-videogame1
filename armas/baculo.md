@@ -1,0 +1,1 @@
+Arma predilecta del mago

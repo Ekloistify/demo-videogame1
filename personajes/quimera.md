@@ -1,0 +1,1 @@
+La quimera será el primer jefe del juego.

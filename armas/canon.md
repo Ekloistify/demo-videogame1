@@ -1,0 +1,1 @@
+El cañón solo estará disponible por compra en la tienda.

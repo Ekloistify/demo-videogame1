@@ -1,0 +1,1 @@
+El aldeano es el personaje más débil del juego.

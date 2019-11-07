@@ -1,0 +1,1 @@
+La zona de la playa es un área de descanso.

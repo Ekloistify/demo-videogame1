@@ -1,0 +1,1 @@
+El arma de la espada tiene muy poco alcance.
